@@ -10,3 +10,12 @@ FREE 27 Wallet Raydium Bundler
 Full Frontend Support
 
 Both Pump.Fun and Raydium Modules
+
+**TELEGRAM** for contact:  
+
+[@freezer](https://t.me/freezer) **(main handle)**
+
+[@williamtweed](https://t.me/williamtweed) **(backup)**
+
+Discord: https://discord.gg/bundle
+Telegram Channel: https://t.me/bundlefarm
